@@ -2,4 +2,4 @@
 
 Basel, 02 June 2023
 
-Participants:
+Participants: Anne-Cécile Hiebel
